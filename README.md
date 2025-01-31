@@ -1,3 +1,2 @@
 # FeiMoxue
-My personal repository
 😀😀😀
